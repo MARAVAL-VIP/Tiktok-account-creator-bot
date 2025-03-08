@@ -35,7 +35,7 @@ tiktok api creator accounts new version
 22. resolve captcha
 
 
-**Contact telegram https://t.me/@anisarino
+**Contact telegram https://t.me/anisarino
 
 telegram channel https://t.me/toolsgi
 
